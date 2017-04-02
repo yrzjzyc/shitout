@@ -1,2 +1,2 @@
 # shitout
-玩的
+descrimina
